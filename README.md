@@ -21,6 +21,7 @@ My favorite TV shows include:
 7. Star Wars: Clone Wars
 8. Star Wars: Skeleton Crew
 9. Star Wars: Ahsoka
+10. White Collar
 
 ## Movies
 
@@ -35,3 +36,4 @@ My favorite movies include:
 7. Captain Marvel
 8. Rain Man
 9. Good Will Hunting
+10. Catch Me If You Can

@@ -17,9 +17,10 @@ My favorite TV shows include:
 3. Avatar: The Last Airbender
 4. The Legend of Korra
 5. Voltron
-6. Star Wars: Clone Wars
-7. Star Wars: Skeleton Crew
-8. Supergirl
+6. Supergirl
+7. Star Wars: Clone Wars
+8. Star Wars: Skeleton Crew
+9. Star Wars: Ahsoka
 
 ## Movies
 

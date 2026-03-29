@@ -41,3 +41,6 @@ My favorite movies include:
 10. Catch Me If You Can
 11. Seabiscuit
 12. Ender's Game
+13. Batman Begins
+14. The Dark Knight
+15. The Dark Knight Rises

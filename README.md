@@ -23,6 +23,7 @@ My favorite TV shows include:
 9. Star Wars: Ahsoka
 10. White Collar
 11. Smallville
+12. Merlin
 
 ## Movies
 

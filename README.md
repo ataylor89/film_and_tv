@@ -46,3 +46,5 @@ My favorite movies include:
 15. The Dark Knight Rises
 16. X-Men First Class
 17. Harry Potter (all eight films)
+18. The Lord of the Rings film trilogy
+19. The Hobbit film trilogy

@@ -22,6 +22,7 @@ My favorite TV shows include:
 8. Star Wars: Skeleton Crew
 9. Star Wars: Ahsoka
 10. White Collar
+11. Smallville
 
 ## Movies
 

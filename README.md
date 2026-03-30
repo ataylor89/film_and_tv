@@ -25,6 +25,7 @@ My favorite TV shows include:
 11. Smallville
 12. Merlin
 13. Firefly
+14. The Queen's Gambit
 
 ## Movies
 

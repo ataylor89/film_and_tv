@@ -24,6 +24,7 @@ My favorite TV shows include:
 10. White Collar
 11. Smallville
 12. Merlin
+13. Firefly
 
 ## Movies
 

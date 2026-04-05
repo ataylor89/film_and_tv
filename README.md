@@ -51,3 +51,5 @@ My favorite movies include:
 18. The Lord of the Rings film trilogy
 19. The Hobbit film trilogy
 20. The Mighty Ducks
+21. Pawn Sacrifice
+22. Searching for Bobby Fischer

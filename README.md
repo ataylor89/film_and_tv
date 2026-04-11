@@ -55,3 +55,5 @@ My favorite movies include:
 21. Pawn Sacrifice
 22. Searching for Bobby Fischer
 23. Solo: A Star Wars Story
+24. The Great Gatsby (2013)
+25. The Curious Case of Benjamin Button (2008)

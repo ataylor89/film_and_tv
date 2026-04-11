@@ -57,3 +57,4 @@ My favorite movies include:
 23. Solo: A Star Wars Story
 24. The Great Gatsby (2013)
 25. The Curious Case of Benjamin Button (2008)
+26. The Legend of Bagger Vance

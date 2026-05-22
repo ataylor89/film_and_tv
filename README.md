@@ -57,10 +57,11 @@ My favorite movies include:
 19. The Hobbit film trilogy
 20. The Mighty Ducks
 21. D2: The Mighty Ducks
-22. Pawn Sacrifice
-23. Searching for Bobby Fischer
-24. Solo: A Star Wars Story
-25. The Great Gatsby (2013)
-26. The Curious Case of Benjamin Button (2008)
-27. The Legend of Bagger Vance
-28. Madame Web (2024)
+22. D3: The Mighty Ducks
+23. Pawn Sacrifice
+24. Searching for Bobby Fischer
+25. Solo: A Star Wars Story
+26. The Great Gatsby (2013)
+27. The Curious Case of Benjamin Button (2008)
+28. The Legend of Bagger Vance
+29. Madame Web (2024)

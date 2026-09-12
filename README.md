@@ -25,12 +25,13 @@ My favorite TV shows include:
 11. Star Wars: Rebels
 12. Star Wars: Maul - Shadow Lord
 13. Star Wars: The Mandalorian
-14. White Collar
-15. Smallville
-16. Merlin
-17. Firefly
-18. The Queen's Gambit
-19. The Lord of the Rings: The Rings of Power
+14. Star Wars: The Ninth Jedi
+15. White Collar
+16. Smallville
+17. Merlin
+18. Firefly
+19. The Queen's Gambit
+20. The Lord of the Rings: The Rings of Power
 
 ## Movies
 

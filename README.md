@@ -34,6 +34,7 @@ My favorite TV shows include:
 20. The Lord of the Rings: The Rings of Power
 21. Seinfeld
 22. Everybody Loves Raymond
+23. Friends
 
 ## Movies
 

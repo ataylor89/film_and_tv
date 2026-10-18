@@ -32,6 +32,8 @@ My favorite TV shows include:
 18. Firefly
 19. The Queen's Gambit
 20. The Lord of the Rings: The Rings of Power
+21. Seinfeld
+22. Everybody Loves Raymond
 
 ## Movies
 
